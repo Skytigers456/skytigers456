@@ -1,5 +1,9 @@
 <p align="center">
-  <img src="https://existing.neocities.org/images/mouse.gif" width="400" height="200">
-  hello! i'm sky!
-  they/he/it
+  <img src="https://existing.neocities.org/images/mouse.gif" width="400" height="400">
+</p>
+  <br>
+<p align="center">
+  hello! i'm sky! <br>
+  they/he/it <br>
+  i'm 20. majoring in <b> Cybersecurity </b>
 </p>
