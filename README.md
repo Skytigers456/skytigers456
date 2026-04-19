@@ -7,6 +7,7 @@
   hello! i'm sky! <br>
   they/he/it <br>
   i'm 20. majoring in <b> Cybersecurity </b>
+  <br> i believe i am a robot / cat thing. my identity is a crisis.
   <br> no real dni except minors tbh
 </p>
 </div>
@@ -27,5 +28,14 @@
   - old tech
   - oneshot -
   </ul>
-  </p> 
+  </p>
 </div>
+
+<div align="center" class="ending">
+<img src="https://existing.neocities.org/gifsky.gif">
+</div>
+
+<br>
+<br>
+check out my cat 
+<img src="https://existing.neocities.org/images/bone.jpg" width="200" height="200">
