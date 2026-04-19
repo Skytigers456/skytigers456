@@ -9,6 +9,8 @@
   i'm 20. majoring in <b> Cybersecurity </b>
   <br> i believe i am a robot / cat thing. my identity is a crisis.
   <br> no real dni except minors tbh
+  <br> i like to chat! please whisper me as i'm usually offtab :3 
+  <br> i like to roleplay too! feel free to hit me up!
 </p>
 </div>
  <br> 
