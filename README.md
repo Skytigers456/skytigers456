@@ -11,7 +11,7 @@
   <br> no real dni except minors tbh
   <br> i like to chat! please whisper me as i'm usually offtab :3 
   <br> i like to roleplay too! feel free to hit me up!
-  <br> (sign my ata!)[https://skytigers.atabook.org/]
+  <br> sign my ata!! https://skytigers.atabook.org/
 </p>
 </div>
  <br> 
