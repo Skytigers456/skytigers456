@@ -6,13 +6,15 @@
 <p align="center">
   hello! i'm sky! <br>
   they/he/it <br>
-  i'm 20. majoring in <b> Cybersecurity </b>
+  <br> <a href=https://skytigers.atabook.org/> sign my ata!! </a>
+  <br> i'm 20. majoring in <b> Cybersecurity </b>
   <br> i believe i am a robot / cat thing. my identity is a crisis.
-  <br> no real dni except minors tbh
+  <br> no real dni except your basic standard dni. however <b> I AM AN ADULT </b> so block/hide me if you're uncomfortable with that.
+  <br>
   <br> i like to chat! please whisper me as i'm usually offtab :3 
   <br> i like to roleplay too! feel free to hit me up!
-  <br> <a href=https://skytigers.atabook.org/> sign my ata!! </a>
 </p>
+  i have yet to find a place i like to sit down a sit, but most consistently is near the deadlock area on the 18+ server~!
 </div>
  <br> 
 <div align="center" class="about">
