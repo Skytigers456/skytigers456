@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://existing.neocities.org/images/mouse.gif" width="400" height="400">
+  <img src="https://existing.neocities.org/images/mouse.gif" width="600" height="400">
 </p>
   <br>
 <p align="center">
