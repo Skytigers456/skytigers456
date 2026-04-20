@@ -14,7 +14,7 @@
   <br> i like to chat! please whisper me as i'm usually offtab :3 
   <br> i like to roleplay too! feel free to hit me up!
 </p>
-  i have yet to find a place i like to sit down a sit, but most consistently is near the deadlock area on the 18+ server~!
+  i have yet to find a place i like to sit down a sit, but most consistently is near the deadlock area on the 18+ server, and the docks on the safe server~!
 </div>
  <br> 
 <div align="center" class="about">
